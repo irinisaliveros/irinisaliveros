@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @irinisaliveros, I have 19 years and I am brazilian
 - 👀 I’m interested in Canva Pro
-- 🌱 I’m currently learning about biology, I'doing college from it
+- 🌱 I’m currently learning about biology, I'm doing college from it
 - 📫 How to reach me: irinisaliveros@id.uff.br
 
 <!---
